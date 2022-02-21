@@ -31,3 +31,9 @@ During the days that only have lectures in them, I do like to sprinkle in a codi
   - Where we will have our quizzes conducted
   - You can view the curriculum here as well. Regardless of what I teach in lecture, you are responsible for keeping up with the material that is on the curriculum
   - You create your portfolios here as well (this will be relavent much later)
+
+### During Training
+- Cameras are ALWAYS on. I will be annoying about this.
+  - If you need to step away for a second then that is fine to turn it off for 5 minutes
+- Dress Code
+  - Will discuss in class 
